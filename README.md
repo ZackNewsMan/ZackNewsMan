@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZackNewsMan. I am a freelance investigative data journalist. I most recently worked for 9Wants to Know, the investigative arm for 9NEWS (KUSA-TV) in Denver, Colorado. I have been an investigative journalist since 2016 and worked for 9NEWS from 2019 to 2023.
+👋 Hi, I’m @ZackNewsMan. I am a freelance investigative data journalist. I most recently worked for 9Wants to Know, the investigative arm for 9NEWS (KUSA-TV) in Denver, Colorado. I have been an investigative journalist since 2016 and worked for 9NEWS from 2019 to 2023.
 
 I persistently weave data and records into a compelling narrative designed to pull readers and viewers in. My award-winning investigative data work led to changes in laws and policies, exposed an international human trafficking ring, inspired the American Civil Liberties Union to sue Denver Police, prompted a Congressional inquiry, and compelled a sheriff’s office to fire a troublesome deputy. 
 
